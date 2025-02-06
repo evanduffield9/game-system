@@ -1,18 +1,31 @@
-ai block 
-ai      wave  
+ai
+ai student 
+ao        poly 
+  
 
+ai
+ai wall 
+ai     end 
+ai        sturdy 
+ai              nice 
+ai                   area 
+ai                       block 
+
+ai block    galaxy    false     false     
+ai      wave      true     false     false
+ 
 wave   
     ai 
 
 tenth   
      day 
 
-minus     
-     gate 
+minus     study      retstart        config      
+     gate      couch         restart       config 
 
-tminus       
-      kissing     
-             touch 
+tminus       ep
+      kissing     nice   
+             touch    study
 
 foreplay
 
