@@ -44,3 +44,8 @@ in understanding
 
     getty
          images
+    drawn 
+         phtoto 
+
+    get 
+       id 
