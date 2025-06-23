@@ -47,8 +47,18 @@ in understanding
     drawn 
          phtoto 
 
-    get 
+    get https://github.com/evanduffield9/if-Michelle-Thinking/blob/main/64/switch
        id 
 
 
 ![12](https://github.com/user-attachments/assets/ca3a42ca-e766-4aa0-b646-84a02951f88d)
+![Picasso triggerfish arp](https://github.com/user-attachments/assets/26f7811b-3fae-419d-9c09-ce1fe937b09b)
+![yma5wuk73hm01](https://github.com/user-attachments/assets/31404145-4961-4c2e-996c-98e9f0b5694b)
+
+
+![triggerfish-feature-pinktail](https://github.com/user-attachments/assets/fd40195b-5f5a-4088-893a-1d0ea788bfc9)
+
+
+![images (6)](https://github.com/user-attachments/assets/74adb461-ba33-4738-afe8-60f818493174)
+
+
