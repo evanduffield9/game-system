@@ -15,18 +15,23 @@ current
 understanding of 
 
 things
+![Best-Small-Dog-Breeds-Maltese](https://github.com/user-attachments/assets/b367e5db-1788-4a2c-a4a1-1376b2d4af8e)
 
 a ago
-     next 
+     next ![1acf6ffc10c7ef89fbce7ab063787c2d](https://github.com/user-attachments/assets/deb5cbcb-ffde-4a84-a6aa-79f3939382ea)
+
 
 current 
-       page 
+       page ![images (6)](https://github.com/user-attachments/assets/29fb7131-04f8-465a-abd4-39daf8551b45)
+
 
 shift
-     theter 
+     theter ![Balistoides-conspicillum](https://github.com/user-attachments/assets/88c6e691-72a9-483f-b2a1-56823bc19473)
+
 
 a defend 
-        site 
+        site ![305659119-0bc742e9-0682-4d96-819f-f927ef318ad8-1](https://github.com/user-attachments/assets/89057374-0c0d-4484-958f-db6e447e0f75)
+
 
 a yard 
       house 
