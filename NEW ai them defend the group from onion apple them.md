@@ -1,4 +1,4 @@
-network
+network ep thrice studio excerrt panel studio cart what who white given adre
 
 ![dg6m855-cac7f3ed-aa75-4f99-ad39-8ceb416d5fba](https://github.com/user-attachments/assets/586ee9d6-661d-4bc7-8f5b-9a8921105786)
 
