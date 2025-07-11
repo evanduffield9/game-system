@@ -3,10 +3,10 @@ in concert
 
 in understanding
     
-    ti ti
+    ti ti exit membrane understood of
     ti
     
-      an 
+      an  credit orb
     ti  ti 
     
     ti
